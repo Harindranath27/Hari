@@ -1,4 +1,4 @@
-# Harindranath K.S 🌟  
+# Harindranath K.S 
 **Computer Science Student | Aspiring Developer | Tech Enthusiast | Business Visionary**  
 
 ---
