@@ -40,9 +40,9 @@ Hi there! I’m Harindranath, a passionate **Computer Science undergraduate** cu
 ---
 
 ### 📫 How to Reach Me  
-- 📩 **Email:** [Your Email Address]  
-- 💼 **LinkedIn:** [Your LinkedIn Profile Link]  
-- 🖥️ **Website (In Progress):** [Your Website Link]  
+- 📩 **Email:** harindranath2005@gmail.com 
+- 💼 **LinkedIn:** www.linkedin.com/in/harindranath-k-s-42376b2aa  
+
 
 ---
 
